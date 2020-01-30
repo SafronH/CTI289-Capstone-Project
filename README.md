@@ -1,4 +1,4 @@
-# CTI289-Capstone-Project-Group-3
+# CTI289-Capstone Project-Group-3
 
 •	Ana Santillan
 
